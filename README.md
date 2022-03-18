@@ -1,6 +1,6 @@
 ## HI THERE:heavy_exclamation_mark::wave:
 
-######*I´m currently studying* **avionics**:eyes:######
+######*I´m currently studying* **avionics**######:eyes:
 
 *I´m learning C, and Phyton*:sunglasses:
 
