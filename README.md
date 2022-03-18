@@ -6,4 +6,4 @@
 
 :japanese_goblin:[Instagram](https://www.instagram.com/vicen_007/):japanese_goblin:
 
-![**No Internet Dinasour**](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRjtdMHTaiKMld1ZsnnEC6yp1e_k9HL5MgD3w&usqp=CAU)
+![**That's true?**](https://data.whicdn.com/images/250090153/original.gif)
